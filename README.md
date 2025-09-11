@@ -1,4 +1,4 @@
-### Hi, I'm a buttion pusher
+### Hi, I'm a button pusher
 
 - Currently busy.
 - Pronouns: `She / Her`
